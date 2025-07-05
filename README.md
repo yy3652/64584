@@ -40,4 +40,4 @@
 为了让您能够快速找到心仪的影片，我们提供了 个性化推荐功能，根据您的观看历史和偏好，自动为您推荐相关的日本AV电影。您还可以通过我们的网站 搜索功能 快速定位到您想看的影片。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/yy3652/64584 ）</span>
